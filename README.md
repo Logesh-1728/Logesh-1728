@@ -22,4 +22,4 @@ I'm a Full Stack Developer interested in collabrating on exciting projects . I'm
 Feel free to reach out to me via :
 - Email: logeshwaran.techymeet@gmail.com
 - Phone: +91 9688048360
-- LinkedIn: [LOGESHWARAN S](https://www.linkedin.com/in/ragavan-sellamuthu)
+- LinkedIn: [LOGESHWARAN S](https://www.linkedin.com/in/logesh-1128)
